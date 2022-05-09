@@ -2,4 +2,4 @@
 
 Comunicador 360º especializado en organización de eventos y desarrollo de aplicaciones web.
 
-¡Descubre mucho más point_down!
+¡Descubre mucho más 👇!
